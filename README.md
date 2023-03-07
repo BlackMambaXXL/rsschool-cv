@@ -1,1 +1,1 @@
-# rsschool-cv
+https://blackmambaxxl.github.io/rsschool-cv/cv
